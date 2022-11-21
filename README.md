@@ -1,3 +1,5 @@
+# Heyy!! Nice seeing you here !<img src="https://media.tenor.com/4kIHjPaMiDoAAAAi/the-blobs-live-on-waving.gif" width="40"/>
+
 # 💫 About Me:
 🌟 I am Sairam<br>🔭 I’m currently working on Myself 😎<br>👯 I’d love to collaborate on Cool Ideas<br>🌱 I’m currently learning Machine Learning<br>💬 Ask me about Anything<br>
 
